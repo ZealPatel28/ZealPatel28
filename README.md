@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Zeal Patel
-- 👀 I’m interested in Website Design and Development
+- 👀 I’m interested in Website Design & Development and Business Analysis
 - 🌱 I’m currently learning Graphic Design and improving development skills
 - 💞️ I’m looking to collaborate on any project which has high learning opportunity 
 - 📫 Reach me at zealpat28@gmail.com
